@@ -1,0 +1,1 @@
+Lenovo ideapad 14
